@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Moby7
+- 👀 I’m interested in Ai change mouth shape&voice clone.
+- 🌱 I’m currently learning gentools.
+- 💞️ I’m looking to collaborate on Ai engineer
+- 📫 xy745839@gmail.com
